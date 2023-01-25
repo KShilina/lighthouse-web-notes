@@ -1,1 +1,1 @@
-# lighthouse-web-notes
+# Ekaterina Shilina's Notes
